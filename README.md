@@ -85,7 +85,7 @@ DevOps Institute, Thane | Oct 2024 – April 2025
 
 ## 💬 Let's Connect!
 
-📧 Email: vaishnavivilaspawar@example.com  
+📧 Email: pawarvaishnavi1942@@gmail.com  
 🔗 LinkedIn: [linkedin.com/in/vaishnavi-vilas-pawar](https://www.linkedin.com/)  
 👨‍💻 GitHub: [github.com/VAISHNAVIP0419](https://github.com/VAISHNAVIP0419)
 
